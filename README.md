@@ -1,2 +1,0 @@
-# egeluia.github.io
-egeluia
